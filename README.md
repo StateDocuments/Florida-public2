@@ -3,6 +3,6 @@
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Florida-public/blob/main/661--2.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Florida-public/blob/main/838--2.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Florida-public/blob/main/845--2.jpg)
-![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Florida-public/blob/main/Ami336866e3-59b0-4a99-9a46-7ed6ee2f7c00.png)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Florida-public/blob/main/Ami96062420-918e-4e08-aea8-31f5ee7c73ea.png)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Florida-public/blob/main/Law-Noise-Construction.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Florida-public/blob/main/fileslist.jpg)
