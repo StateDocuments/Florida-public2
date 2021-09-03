@@ -1,4 +1,7 @@
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Florida-public/blob/main/090220212145_t.jpg)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Florida-public/blob/main/117--7.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Florida-public/blob/main/1193--10.jpg)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Florida-public/blob/main/120--7.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Florida-public/blob/main/1228--10.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Florida-public/blob/main/1233--10.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Florida-public/blob/main/1234--10.jpg)
