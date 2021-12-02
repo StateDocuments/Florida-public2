@@ -1,0 +1,5 @@
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Florida-public/blob/main/1163--11.jpg)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Florida-public/blob/main/1164--11.jpg)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Florida-public/blob/main/1165--11.jpg)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Florida-public/blob/main/117--7.jpg)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/Florida-public/blob/main/1193--10.jpg)
